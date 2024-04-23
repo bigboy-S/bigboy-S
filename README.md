@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bigboy-S
-- 👀 I’m interested in programming ai web development Cyber security ethical hacking 
+- 👀 I’m interested in programming ai web development Cyber security
 - 🌱 I’m currently learning Information technology 
 - 💞️ I’m looking to collaborate on various projects 
 - 📫 How to reach me email simonwarui004@gmail.com
